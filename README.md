@@ -9,6 +9,8 @@ Email: nub_huda@yahoo.com
 Personal Profile:
 
 I am Md Nazmul Huda, I am self-motivated, responsible and reliable, honest and hardworking person. I am a team worker with great interpersonal skills, attention to details and excellent customer service skill. I am determined and self-disciplined. I like setting myself target and get great pleasure from achieving them. I am looking for a reputable company where I can apply my educational knowledge, skills and practical experience.
+
+
 Key Skills:
 •	Excellent written and verbal Communication Skills. 
 •	Perform the duty efficiently and effectively to accomplish the result.
